@@ -2,4 +2,10 @@
 
 Mkplace Technology's CTO
 
-david@mkplace.com.br / inonjs@gmail.com
+**Contact**:
+
+ti@mkplace.com.br
+
+www.mkplace.com.br
+
+São Paulo - SP 
